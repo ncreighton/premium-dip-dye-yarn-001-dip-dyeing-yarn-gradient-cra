@@ -1,0 +1,2 @@
+# premium-dip-dye-yarn-001-dip-dyeing-yarn-gradient-cra
+Tired of uneven color dips and chaotic yarn-dyeing notes? Your gradient dreams start here.  This Notion hub eliminates guesswork, centralizing dye recipes, timing logs, and color progression tracking so every skein emerges with flawless ombré. No more lost formulas or splotchy results—just repeatable, salon-worthy gradients from your kitchen table.
